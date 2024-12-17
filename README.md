@@ -1,1 +1,1 @@
-compte non professionnel de [lopez-antonin] (https://www.github.com/lopez-antonin)
+Vous vous trouvez sur le compte non-professionnel de <a href="https://github.com/lopez-antonin" target="_blank">@lopez-antonin</a>
