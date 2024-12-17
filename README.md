@@ -1,1 +1,1 @@
-compte non professionnel de [@lopez-antonin] (https://www.github.com/lopez-antonin)
+compte non professionnel de [lopez-antonin] (https://www.github.com/lopez-antonin)
